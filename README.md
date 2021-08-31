@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @TheHinn
+- 👋 Hi, I’m Hinn!
 - 👀 I’m interested in Gaming, Music and Coding.
 - 🌱 I’m currently learning Programming and a bit of coding.
 - 📫 How to reach me Discord: Hinn #0001 - Steam: https://steamcommunity.com/id/TheHinn
